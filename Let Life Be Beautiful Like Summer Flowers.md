@@ -66,3 +66,8 @@ by Rabindranath Tagore
 > See, I wear Zan Flowers on my head, in full bloom along the way all the way
 > 
 > Frequently missed some, but also deeply moved by wind, frost, snow or rain
+>
+> 5.
+> Prajna Paramita, soon as soon as
+> life be beautiful like summer flowers and death like autumn leaves
+> Also care about what has
